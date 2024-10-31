@@ -6,7 +6,7 @@ I find Kierkegaard's statement that he is in search of "that solitary 'individua
 
 ## Chapter 1: Man and the Eternal
 
-Kierkegaard's opening reminds me of the opening to St. Augustine's *Confessions*. Striking.
+Kierkegaard's opening pages remind me of the opening pages of St. Augustine's *Confessions*. A cry to God from the heart, setting the scene. Striking.
 
 He opens with a meditation on Ecclesiastes: "To everything there is a season." In what sense are these words meant? Ultimately, there must be something unchanging about them. If these are merely the words of an old man, then he is looking back on his life and seeing the phases that no longer apply to him. He would be like the flower, about to wither and die in autumn, recalling its prime of life in spring. And when the flower was in spring, how could it then have grasped the reality of its doom in autumn and seen both events as being the same kind of phenomena?
 
@@ -26,7 +26,13 @@ To this beginning Kierkegaard adds a beautiful observation. Imagine that the flo
 
 ## Chapter 2
 
+Repentance is of the eternal time, not of the temporal. It is not a season of life but the interface between immortality and each moment. It urges action without delay, for from the perspective of eternity it is always late; however, it is also patient in waiting for the penitent to take in the moment and prepare himself properly to repent. Remorse, which evokes in us both the urgency to repent and the patience to properly dispose ourselves for it, is like a most sincere friend, if only we recognize it. (His beautiful description of it as such is, to me, reminiscent of Plato.)
 
+Kierkegaard describes life as wandering on a path. During our wanderings we have two guides constantly calling to us: one urging us forward to the Good, the other calling us back from evil. They are always calling both early and late in life — temporally speaking, for from the perspective of eternity (as we saw above) it is always late. "Repentance and remorse know how to make use of time in fear and trembling."
+
+Despite the hour always being late, from the perspective of eternity, experience shows us that acting quickly in the temporal sense is not usually a good idea. We have temporal impulses to do so, to drink the bitter draught quickly and get it over with and behind. But the mature view never puts repentance behind as a thing past, and it recognizes the impulse to get rid of discomfort as impatience. And impatience, even when it rages on, does not become repentance. The point is not to get away from guilt but to allow it to purify us so that we are positioned to will only one thing. For that reason, punishment itself becomes a blessing. (Again, I am reminded of Plato.) 
+
+Because repentance has its time, it evokes in the properly disposed man a sense of ceremony and occasion — capital-C Confession, decorated and celebrated so as to maximize its effect. The ceremony and decoration is to be found in silence, for it is in silence that eternity meets a moment and has the space to fill it. In silence a man finds truth, self-knowledge, transparency, and humility.
 
 > One dare not say of repentance and remorse that it has its time; that there is a time to be carefree and a time to be prostrated in repentance. Such talk would be: to the anxious urgency of repentance — unpardonably slow; to the grieving after God — sacrilege; to what should be done this very day, in this instant, in this moment of danger — senseless delay. For there is indeed danger. There is a danger that is called delusion. It is unable to check itself. It goes on and on: then it is called perdition. But there is a concerned guide, a knowing one, who attracts the attention of the wanderer, who calls out to him that he should take care. That guide is remorse. He is not so quick of foot as the indulgent imagination, which is the servant of desire. He is not so strongly built as the victorious intention. He comes on slowly afterwards. He grieves. But he is a sincere and faithful friend. If that guide’s voice is never heard, then it is just because one is wandering along the way of perdition. 
 
@@ -36,7 +42,9 @@ To this beginning Kierkegaard adds a beautiful observation. Imagine that the flo
 
 > The two guides call out to a man early and late. And yet, no, for when remorse calls to a man it is always late. The call to find the way again by seeking out God in the confession of sins is always at the eleventh hour. Whether you are young or old, whether you have sinned much or little, whether you have offended much or neglected much, the guilt makes this call come at the eleventh hour.
 
-> But repentance and remorse know how to make use of time in fear and trembling. When remorse awakens concern, whether it be in the youth, or in the old man, it awakens it always at the eleventh hour. It does not have much time at its disposal, for it is at the eleventh hour. It is not deceived by a false notion of a long life, for it is at the eleventh hour. And in the eleventh hour one understands life in a wholly different way than in the days of youth or in the busy time of manhood or in the final moment of old age. He who repents at any other hour of the day repents in the temporal sense. He fortifies himself by a false and hasty conception of the insignificance of his guilt. He braces himself with a false and hasty notion of life’s length. His remorse is not in true inwardness of spirit.
+> But repentance and remorse know how to make use of time in fear and trembling. 
+
+> When remorse awakens concern, whether it be in the youth, or in the old man, it awakens it always at the eleventh hour. It does not have much time at its disposal, for it is at the eleventh hour. It is not deceived by a false notion of a long life, for it is at the eleventh hour. And in the eleventh hour one understands life in a wholly different way than in the days of youth or in the busy time of manhood or in the final moment of old age. He who repents at any other hour of the day repents in the temporal sense. He fortifies himself by a false and hasty conception of the insignificance of his guilt. He braces himself with a false and hasty notion of life’s length. His remorse is not in true inwardness of spirit.
 
 > From the point of view of the Eternal, repentance must come instantaneously, indeed there is not even time to utter the words. But man is in the temporal dimension and moves along in time. Thus the Eternal and the temporal seek to make themselves intelligible to each other. Just as the temporal does not wish for delay simply in order to withdraw itself, but, conscious of its weakness, asks time to prepare itself; so the Eternal yields not because it gives up its claim, but in order by tender treatment to give frail man a little time.
 
@@ -44,7 +52,7 @@ To this beginning Kierkegaard adds a beautiful observation. Imagine that the flo
 
 > Sudden repentance would drink down all the bitterness of sorrow in a single draught and then hurry on. It wants to get away from guilt. It wants to banish all recollection of it, fortifying itself by imagining that it does this in order not to be held back in the pursuit of the Good. It is its wish that guilt, after a time, might be wholly forgotten. And once again, this is impatience. Perhaps a later sudden repentance may make it apparent that the former sudden repentance lacked true inwardness.
 
-> 
+> For in the temporal, and sensual, and social sense, repentance is in fact something that comes and goes during the years. But in the eternal sense, it is a silent daily anxiety.
 
 
 
