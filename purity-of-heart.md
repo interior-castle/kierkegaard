@@ -54,6 +54,25 @@ Because repentance has its time, it evokes in the properly disposed man a sense 
 
 > For in the temporal, and sensual, and social sense, repentance is in fact something that comes and goes during the years. But in the eternal sense, it is a silent daily anxiety.
 
+## Chapter 3
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
